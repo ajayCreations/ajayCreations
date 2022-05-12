@@ -1,5 +1,5 @@
 
--> I'm good in React, React-Native, C++, MERN. And currently learning block-chain tech. 
+-> FullStack Developer. 
 - I ❤ fullstack development beacuse :
 "Application dev. has the power to create a big impact from your desk." 
 
