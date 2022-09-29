@@ -10,7 +10,7 @@ way to build it by helping peoples  through technology.
 2nd startup is anaisha, slow down cuz of lack of marketting !
 3rd startup .... working on it. 
 
-"You'll never know whan you'll get it, so keep trying!" - me. 
+"You'll never know when you'll get it, so keep trying!" - me. 
 
 
 
